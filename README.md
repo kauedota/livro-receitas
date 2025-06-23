@@ -4,7 +4,7 @@
 
 
 
-Olá! bem vindo ao meu livro de receitas:paintbrush:
+Olá! bem vindo ao meu livro de receitas:paintbrush
 
 
 
